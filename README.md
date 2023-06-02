@@ -24,7 +24,28 @@ Hadd beszélek mostan veled,
 Régi cseléd vagy a háznál,
 Mindig emberűl szolgáltál,
 
-Ezután is jó légy, Morzsa,
+Ezután is jó légy, Morzsa
 Kedvet ne kapj a tyúkhusra,
 Élj a tyúkkal barátságba’...
 Anyám egyetlen jószága.
+
+
+Nincsen apám, se anyám,
+se istenem, se hazám,
+se bölcsőm, se szemfedőm,
+se csókom, se szeretőm.
+
+Harmadnapja nem eszek,
+se sokat, se keveset.
+Húsz esztendőm hatalom,
+húsz esztendőm eladom.
+
+Hogyha nem kell senkinek,
+hát az ördög veszi meg.
+Tiszta szívvel betörök,
+ha kell, embert is ölök.
+
+Elfognak és felkötnek,
+áldott földdel elfödnek
+s halált hozó fű terem
+gyönyörűszép szívemen.
